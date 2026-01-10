@@ -9,3 +9,5 @@
 
   ![1000217056](https://github.com/user-attachments/assets/a988e33d-b852-40d6-a3b7-a8830c1456a3)
 <p align="center">★ pics are from my student spirit ep. 4 and 5 ★
+  
+<img width="348" height="256" alt="image" src="(https://github.com/user-attachments/assets/a988e33d-b852-40d6-a3b7-a8830c1456a3)" />
