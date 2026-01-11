@@ -7,6 +7,7 @@
 
 <p align="center">𝆹𝅥𝆹𝅥 ‎<a href="https://onekinnie.straw.page">straw</a> • <a href="https://en.pronouns.page">prns.page</a> 𝆹𝅥𝆹𝅥
 
-  ![1000217056](https://github.com/user-attachments/assets/a988e33d-b852-40d6-a3b7-a8830c1456a3)
+
 <p align="center">★ pics are from my student spirit ep. 4 and 5 ★
 <p align="center">i cant center thqt one photo hel[me
+<p align="center">  <img width="700" height="800" alt="me" src="https://github.com/user-attachments/assets/a988e33d-b852-40d6-a3b7-a8830c1456a3" /> </p>
