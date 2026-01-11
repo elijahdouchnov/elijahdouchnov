@@ -1,5 +1,4 @@
-![1000218289](https://github.com/user-attachments/assets/0b01385d-9b93-439b-9ba5-1acd4a80135e)
-
+<p align="center">  <img width="800" height="900" alt="me" src="https://github.com/user-attachments/assets/0b01385d-9b93-439b-9ba5-1acd4a80135e" /> </p>
 <p align="center">𝆹𝅥𝆹𝅥 𝖺𝗈𝗌𝗁𝗂 / 𝖾𝗅𝗂𝗃𝖺𝗁 / 𝗍𝖺𝖼𝗈 . 15 𝗒.𝗈 𝆹𝅥𝆹𝅥
 <p align="center"> 18+ or 12- 𝗱𝗻𝗶𝘂𝗶𝗱 / 𝘂𝗳 𝘀𝘁𝗿𝗶𝗰𝘁𝗹𝘆.
 <p align="center">★ in love w kiwi (and elijah)
@@ -10,4 +9,4 @@
 
 <p align="center">★ pics are from my student spirit ep. 4 and 5 ★
 <p align="center">i cant center thqt one photo hel[me
-<p align="center">  <img width="700" height="800" alt="me" src="https://github.com/user-attachments/assets/a988e33d-b852-40d6-a3b7-a8830c1456a3" /> </p>
+<p align="center">  <img width="800" height="900" alt="me" src="https://github.com/user-attachments/assets/7d9c35ec-a34d-4e49-a18e-2db165cbeeca" /> </p>
